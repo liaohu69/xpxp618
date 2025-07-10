@@ -2,8 +2,8 @@
 
 ## 官方最新地址
 #### XP天堂 全球永久网址 https://xpxp618.com
-#### XP天堂 国内备用网址: [https://www.xpxp888.com](https://www.xpxp888.com)
-
+#### XP天堂 国内最新网址: [https://www.xpxp888.com](https://www.xpxp888.com)
+#### XP天堂 国内备用网址: [https://xpme.art.com](https://xpme.art.com)
 ## 失联后如何找到回家的路👇：
 #### 方法1:
 加入XP天堂 电报官方群群：https://t.me/+feqeAUNVzBAwYWFk
