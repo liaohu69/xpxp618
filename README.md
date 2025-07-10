@@ -1,8 +1,8 @@
 ## XP天堂官方邮箱 xptiantang@gmail.com
 
 ## 官方最新地址
-#### XP天堂 国内最新网址 https://www.xpxp618.com
-#### XP天堂 国内备用网址: https://www.xpxp888.com
+#### XP天堂 全球永久网址 https://xpxp618.com
+#### XP天堂 国内备用网址: [https://www.xpxp888.com](https://www.xpxp888.com)
 
 ## 失联后如何找到回家的路👇：
 #### 方法1:
